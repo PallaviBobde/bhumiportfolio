@@ -1,4 +1,4 @@
-# 🌟 Portfolio of Pallavi Bobde 💼
+# 🌟 Portfolio of My Friend 💼
 
 ![Portfolio Logo](path/to/logo.png)
 
